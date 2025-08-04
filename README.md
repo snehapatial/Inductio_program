@@ -1,6 +1,4 @@
-
-
-Welcome to the documentation of my 3-day induction journey as a new student. This program was designed to help us transition smoothly into college life, understand the institution’s values, and connect with peers and faculty.
+Induction  Program 
 
 ---
 
