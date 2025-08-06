@@ -35,4 +35,15 @@ Induction  Program
   **Dr. priya darshani madam **
  * topic : UHV*
 - lecture of english
-- lecture of p2p 
+- lecture of p2p
+
+# Day 5 : valued Learning 
+
+- lecture by MR gutam maurria on motorsport
+  - lecture by dr. amit kammra on digital marketing
+  - Lecture by shaffy makkar on millets super food
+ 
+- # Day 6 : welfare and valued based Learning session
+
+- lecture by respected dr. parminder singh they motivate the students for there upcoming life and for there welfare
+- expert lecture by Mr . manpreet singh on " fitness for engineers " they told uss very important things to make ourselves healty they resolved many students problem regarding there health,  diet, etc 
