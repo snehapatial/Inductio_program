@@ -37,13 +37,32 @@ Induction  Program
 - lecture of english
 - lecture of p2p
 
-# Day 5 : valued Learning 
+# Day 5 : valued Learning ( 5 aug 2025)
 
 - lecture by MR gutam maurria on motorsport
   - lecture by dr. amit kammra on digital marketing
   - Lecture by shaffy makkar on millets super food
  
-- # Day 6 : welfare and valued based Learning session
+- # Day 6 : welfare and valued based Learning session ( 6 aug 2025)
 
 - lecture by respected dr. parminder singh they motivate the students for there upcoming life and for there welfare
 - expert lecture by Mr . manpreet singh on " fitness for engineers " they told uss very important things to make ourselves healty they resolved many students problem regarding there health,  diet, etc 
+
+
+- # Day 7 : Daily base lecture & valued Learning ( 7 aug 2025)
+
+- there was a physics lecture by Jaspreer singh
+- Second lecture of math by sandeep kaur gill 
+- lecture by Dr. lakhvir singh khana ( incharge  - CML)
+- lecture by Dr. jasvir singh grewal ( incharge -NSS)
+
+- # Day 8 : Introduction to workshop ( 8 aug 2025)
+there is a lecture in which we were introduce to electronic workshop , they tell us about the instructions, rules etc about workshop 
+
+- # Day 9 : Daily basic Lectures ( 11 aug 2025)
+- lecture of p2p in morning 
+- there is second lecture of physics by Randir singh sir 
+- there is third lecture of pps 
+- and the last lecture is in the electric workshop 
+
+
